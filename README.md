@@ -1,1 +1,1 @@
-# Altcurricula
+# Alt Curricula
